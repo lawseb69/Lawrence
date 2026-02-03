@@ -31,7 +31,7 @@
 ## 📫 Connect With Me
 
 📧 **Email:** lawrence_sebastian@yahoo.com  
-🔗 **LinkedIn:** (Add your LinkedIn profile link here)
+🔗 **LinkedIn:** (https://www.linkedin.com/in/lawrence-sebastian-a14962281/)
 
 ---
 
